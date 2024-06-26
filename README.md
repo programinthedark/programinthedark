@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @programinthedark
+- 👀 I’m interested in learning the basics and building meaningful things
+- 🌱 I’m currently learning things I should've learned 10 years ago
+- 💞️ I’m looking to collaborate ... but not yet
+- 📫 How to reach me: LinkedIn @kaidendeck
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: You'll know my name one day
